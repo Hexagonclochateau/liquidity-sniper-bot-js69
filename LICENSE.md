@@ -1,4 +1,4 @@
-# 
+# AI-powered liquidity sniper bot | degen-coin-scanning + volume-spike-detection offers the most advanced liquidity sniper bot, with degen-coin-scanning and volume-spike-detection.
 
 
 
